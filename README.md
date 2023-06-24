@@ -7,6 +7,11 @@
 
 会员制群聊：870659114
 
-miHomo玩家社区：114514member
+miHoMo玩家社区：114514member
 
-        仓库主邮箱：1145141919810@ikun.email
+
+会员制Minecrat服务器：
+        play.claylark.shop
+        
+腐竹邮箱：        
+        1145141919810@ikun.email
